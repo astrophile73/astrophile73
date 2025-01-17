@@ -10,7 +10,9 @@
 ![BlackholeSpaceGIF](https://github.com/user-attachments/assets/cf7c1699-55e9-49d6-8511-5a6b69f364b9)
 
 
-3) Naked singularities. Oher than academia, I love watching and playing sports like Cricket🏏, Football ⚽, Badminton 🏸 and Table Tennis 🏓
+3) Naked singularities.
+
+Oher than academia, I love watching and playing sports like Cricket🏏, Football ⚽, Badminton 🏸 and Table Tennis 🏓
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
