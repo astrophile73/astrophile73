@@ -13,7 +13,8 @@
 3) Naked singularities.
 
 Oher than academia, I love watching and playing sports like Cricket🏏, Football ⚽, Badminton 🏸 and Table Tennis 🏓
-- 💞️ I’m looking to collaborate on ...
+
+
 - 📫 How to reach me:
 Through mail: 6025raj@gmail.com, rajgithub79@gmail.com
 
